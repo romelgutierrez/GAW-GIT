@@ -8,4 +8,4 @@ hola...
 
  Bueno me siento loquillo aprendiendo a usar esta maravillosa tecnología, cuando más aprendo más me gusta y cuando mas me gusta mas tiempo la dedico, parece que estoy enamorado jaja.
 
-  gracias........😂😂😂😂😂yo😂😂😂😂😂
+  gracias ❤.
